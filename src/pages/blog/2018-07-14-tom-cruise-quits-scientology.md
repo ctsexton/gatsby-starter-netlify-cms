@@ -8,3 +8,7 @@ tags:
   - beverly hills
 ---
 In the latest news from Hollywood Boulevard, Tom Cruise has apparently had a complete mental breakdown.
+
+
+
+Crazy???!!!
